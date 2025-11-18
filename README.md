@@ -1,0 +1,1 @@
+I am Ignacio Calvo, a strategic product and innovation specialist with a strong focus on banking and financial technology. This repository showcases some of my projects and contributions in banking product development, digital experiences, and strategic market insights.
